@@ -1,7 +1,7 @@
 
 <div align="center">
 
-[`leave a message :)`](https://lottieshauna.atabook.org)
+[`leave a message :)`](https://lottieshauna.atabook.org) ✩ [`or a picture :P`](https://qntlerqueen.straw.page)
 
  [<img src=https://files.catbox.moe/mwrmp4.png>](https://x.com/eightbeatr/status/1971350044004741624/photo/1)
 
