@@ -1,11 +1,11 @@
 
 <div align="center">
 
-[`leave a message :)`](https://lottieshauna.atabook.org) ✩ [`or a picture :P`](https://qntlerqueen.straw.page)
+────    ‎ ‎ [`leave a message :)`](https://lottieshauna.atabook.org)  ‎  ‎  ୨ৎ    ‎ ‎ [`or a picture :P`](https://qntlerqueen.straw.page) ‎   ‎  ────
 
  [<img src=https://files.catbox.moe/p70f2l.png>](https://x.com/rimri4mm/status/2048192386862399920)
 
-[`@mirrorgem`](https://github.com/mirrorgem)'s spam follow account 
+ 𐔌՞. .՞𐦯  ‎  [`@mirrorgem`](https://github.com/mirrorgem) spam follow account    ‎ ⋆౨ৎ˚⟡˖ ࣪
 
  ‎ 
 
