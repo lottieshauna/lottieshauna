@@ -3,19 +3,17 @@
 
 [`leave a message :)`](https://lottieshauna.atabook.org) ✩ [`or a picture :P`](https://qntlerqueen.straw.page)
 
- [<img src=https://files.catbox.moe/mwrmp4.png>](https://x.com/eightbeatr/status/1971350044004741624/photo/1)
+ [<img src=https://files.catbox.moe/p70f2l.png>](https://x.com/rimri4mm/status/2048192386862399920)
 
 [`@mirrorgem`](https://github.com/mirrorgem)'s spam follow account 
 
-art cred is `linked` to the image *!!*
-
-if you cant tell. i enjoy lottieshauna ♡
-
  ‎ 
 
-  ‎ 
+ ‎ 
+ 
+ ‎ 
 
-   ‎ 
+ ‎ 
 stamps !!
     ‎ 
 
@@ -33,4 +31,4 @@ stamps !!
 
 <img src=https://64.media.tumblr.com/ab7ad80425e25c227746417790e3b2e4/ea49030498cdbca6-ae/s100x200/1c2e21f804a6245970fbc8fb46d7345dfd698e63.gifv> <img src=https://64.media.tumblr.com/416442ad28889453f5c757534d18400f/ea49030498cdbca6-10/s100x200/cde42f72f351df90187aefabc7efade5e928d6ba.gifv> <img src=https://64.media.tumblr.com/b731d5033751d21264dac13a741fc3ea/ea49030498cdbca6-c3/s100x200/4fb9fe9cf0eaa581a1ffe678739bff97c85fd47d.gifv> <img src=https://64.media.tumblr.com/f1224253f5cd4c2672b9bca565eb393f/ea49030498cdbca6-1b/s100x200/fc500b969aa1c35f4fc83b7b49266eb77a950734.gifv>
 
-i reely like shauna shipman in a gay way. im sorry its just that something about her draws me in i love her so much
+i reely like shauna shipman in a gay way. iwant her. oki bye pls interact with me
