@@ -1,11 +1,11 @@
 
 <div align="center">
 
-────    ‎ ‎ [`leave a message :)`](https://lottieshauna.atabook.org)  ‎  ‎  <img src=https://64.media.tumblr.com/4def31436e63842aa6e19f9dc5e6f5c4/1a2a861156920619-1b/s75x75_c1/757989264f0142fbf9ae443a4a8ed2b3de61645b.gifv> 𑣲 <img src=https://64.media.tumblr.com/9871b55f370c461d391ed5382119ebc4/1a2a861156920619-0f/s75x75_c1/932bf6e11199ac93829cca94f5c279fa86c7caee.gifv>    ‎ ‎ [`or a picture :P`](https://qntlerqueen.straw.page) ‎   ‎  ────
+[`leave a message :)`](https://lottieshauna.atabook.org)  ‎  ‎  <img src=https://64.media.tumblr.com/4def31436e63842aa6e19f9dc5e6f5c4/1a2a861156920619-1b/s75x75_c1/757989264f0142fbf9ae443a4a8ed2b3de61645b.gifv> 𑣲 <img src=https://64.media.tumblr.com/9871b55f370c461d391ed5382119ebc4/1a2a861156920619-0f/s75x75_c1/932bf6e11199ac93829cca94f5c279fa86c7caee.gifv>    ‎ ‎ [`or a picture :P`](https://qntlerqueen.straw.page)
 
- [<img src=https://files.catbox.moe/p70f2l.png>](https://x.com/rimri4mm/status/2048192386862399920)
+ [<img height=300 width=300 src=https://files.catbox.moe/p70f2l.png>](https://x.com/rimri4mm/status/2048192386862399920)
 
- 𐔌՞. .՞𐦯  ‎  [`@mirrorgem`](https://github.com/mirrorgem) spam follow account    ‎   ‎  ‎ <img src=https://64.media.tumblr.com/727b519a2e644559e20994ab47a1fc41/0ed57e0a8d70951b-e0/s75x75_c1/d603dccb59dc0ce101a10c9333b29ee69c314e63.gifv> 𑣲 <img src=https://64.media.tumblr.com/e53e6b4714b6f4580d8613685cf669e9/a094d1d85186ab64-6d/s75x75_c1/f324ceaec45811063e1d2aa24714e1ef4fb40f95.gifv>
+  ‎₍ᐢ. ̞.ᐢ₎  follow [`@yeIIowjackets`](https://github.com/yeIIowjackets)    ‎   ‎  ‎ <img src=https://64.media.tumblr.com/727b519a2e644559e20994ab47a1fc41/0ed57e0a8d70951b-e0/s75x75_c1/d603dccb59dc0ce101a10c9333b29ee69c314e63.gifv> 𑣲 <img src=https://64.media.tumblr.com/e53e6b4714b6f4580d8613685cf669e9/a094d1d85186ab64-6d/s75x75_c1/f324ceaec45811063e1d2aa24714e1ef4fb40f95.gifv>
    ‎ 
  
 
