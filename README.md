@@ -1,7 +1,7 @@
 
 <div align="center">
 
-[`leave a message :)`](https://lottieshauna.atabook.org)  ‎  ‎  <img src=https://64.media.tumblr.com/4def31436e63842aa6e19f9dc5e6f5c4/1a2a861156920619-1b/s75x75_c1/757989264f0142fbf9ae443a4a8ed2b3de61645b.gifv> 𑣲 <img src=https://64.media.tumblr.com/9871b55f370c461d391ed5382119ebc4/1a2a861156920619-0f/s75x75_c1/932bf6e11199ac93829cca94f5c279fa86c7caee.gifv>    ‎ ‎ [`or a picture :P`](https://qntlerqueen.straw.page)
+[`leave a message :)`](https://lottieshauna.atabook.org)  ‎  ‎  <img src=https://64.media.tumblr.com/4def31436e63842aa6e19f9dc5e6f5c4/1a2a861156920619-1b/s75x75_c1/757989264f0142fbf9ae443a4a8ed2b3de61645b.gifv> 𑣲 <img src=https://64.media.tumblr.com/9871b55f370c461d391ed5382119ebc4/1a2a861156920619-0f/s75x75_c1/932bf6e11199ac93829cca94f5c279fa86c7caee.gifv>    ‎ ‎ [`or a picture :P`](https://ritualbeating.straw.page/)
 
  [<img height=300 width=300 src=https://files.catbox.moe/p70f2l.png>](https://x.com/rimri4mm/status/2048192386862399920)
 
